@@ -1,3 +1,3 @@
-[![LOVELY BOY 💘](https://telegra.ph/file/002151a1eb0040d0b7b90.jpg)](https://heroku.com/deploy?template=https://github.com/attitudeking1/LOVELYX)
+[![LOVELY BOY 💘](https://telegra.ph/file/66817e4d190d8cf2e437a.jpg)](https://t.me/Horimaya)
 
 # Keep supporting us 💝
